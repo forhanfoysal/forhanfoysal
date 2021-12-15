@@ -4,7 +4,7 @@
 #### Wordpress & Ecommerce Expert
 ![Profile views](https://gpvc.arturio.dev/forhanfoysal) 
 
-###I am Forhan Foysal. Web, WordPress & eCommerce/Landing page /Wix/ Developer / Dropship & Online store expert.
+I am Forhan Foysal. Web, WordPress & eCommerce/Landing page /Wix/ Developer / Dropship & Online store expert.
 As freelancer Completed 50+ Projects at various marketplaces since 2018.
 
 
